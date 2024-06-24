@@ -3,8 +3,11 @@
 I'm Seamus Morrison, a student at BYU studying Computer Science.
 
 Email: llamathedark@gmail.com
+
 Discord: ogltd
+
 Minecraft (Java): ogltd
+
 Minecraft (Bedrock): DarthTater13
 
 hmu, let's play Minecraft
