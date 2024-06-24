@@ -2,13 +2,10 @@
 
 I'm Seamus Morrison, a student at BYU studying Computer Science.
 
-Email: llamathedark@gmail.com
-
-Discord: ogltd
-
-Minecraft (Java): ogltd
-
-Minecraft (Bedrock): DarthTater13
+Email: llamathedark@gmail.com<br>
+Discord: ogltd<br>
+Minecraft (Java): ogltd<br>
+Minecraft (Bedrock): DarthTater13<br>
 
 hmu, let's play Minecraft
 
